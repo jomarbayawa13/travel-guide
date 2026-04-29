@@ -1,1 +1,1 @@
-# travel-guide
+Healthy eating involves prioritizing whole foods, increasing fiber, reducing salt, sugar, and saturated fats, and staying hydrated
